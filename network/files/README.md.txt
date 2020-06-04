@@ -1,1 +1,0 @@
-FIles of sizes 10 MB, 100 MB, 500 MB can be accessed here - https://drive.google.com/drive/folders/1HrmvdetYcmGmUD2FN2Q8_ByFOJMMJ0JH?usp=sharing
